@@ -1,2 +1,2 @@
-                              ![](https://files.catbox.moe/ntpwu1.png)
+  ![](https://files.catbox.moe/ntpwu1.png)
               
